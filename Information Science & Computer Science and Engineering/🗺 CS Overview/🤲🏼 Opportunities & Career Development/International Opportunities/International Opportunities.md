@@ -34,6 +34,8 @@ https://www.51deguo.com
 
 https://us151.com
 
+https://earthtrip.wixsite.com/adventure
+
 
 ### Other Resources
 https://www.99csw.com/book/1938/index.htm
